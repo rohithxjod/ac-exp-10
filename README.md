@@ -88,8 +88,7 @@ end
 ## CALCULATION
 
 ![WhatsApp Image 2025-12-03 at 14 53 37_3324d592](https://github.com/user-attachments/assets/1cc329e1-8d04-49ac-9920-9b8f9ea3859b)
-![WhatsApp Image 2025-12-03 at 14 53 37_3324d592 - Copy](https://github.com/user-attachments/assets/44a473c4-5ffb-4e4a-ab63-457f7291c904)
-
+![WhatsApp Image 2025-12-03 at 14 53 25_baf9281a](https://github.com/user-attachments/assets/3478316c-920e-49b7-8aa2-e7df9984e355)
 
 
 
